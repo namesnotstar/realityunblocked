@@ -1,20 +1,20 @@
 # REALITYUNBLOCKED BY STAR
 unblocked proxies n games + BONUS! ways to hack out of teachers watching your screen
 --
-> **PROXIES**
+**PROXIES**
 - https://165.232.120.63/
 - https://emerald.soapclient.com/
 - https://kt22p5-8000.csb.app/app
 - https://unblockpanda.github.io
 - *i am adding more soon if i find any*
 ---------------------------
-> **GAMES**
+  **GAMES**
 - https://unblockpanda.github.io/1v1lol (most games are from the last proxy)
 - https://coolmathgames.com (has slice master, run 3 etc.)
 - *will update if found more*
 
 ---------------------------
-> **BONUS ONLY WORKS WITH CLASSWIZE/LINEWIZE**
+**BONUS ONLY WORKS WITH CLASSWIZE/LINEWIZE**
 - find the extension of the watcher on the extension toolbar
 - pin it
 - click on it, it will tell you which teacher/class is watching you
